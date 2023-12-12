@@ -1,0 +1,1 @@
+###FinchBot Sumo wrestling automatic:
